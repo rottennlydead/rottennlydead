@@ -6,14 +6,11 @@
 
 "  ♱   𝐃𝐍𝐈 if you hate my friends . ( especially those on my profile ) 
 
-⊱    I don't care if you hate me but...
- how could you hate my friends if they are great..??
-
 — I love enstars, I like all the characters but Mika Kagehira will always be my top1 
   (even though Kaoru is here right now)
 
-  I like ts (yes), ptv, mcr, sws, paramore, fir, bvb and anything I can find "
+  I like ts (yes), ptv, mcr, sws, paramore, fir, bvb and anything I can find ⊱
   
   I like rhythm games more, enstars, pjsk, d4dj, bandori, etc.
 
-  !!!!!!!!!!!!!!!!! and I love my best friend (julian) !!!!!!!!!!!!!!!!!!!!!
+   ! and I love my bff (julian)
