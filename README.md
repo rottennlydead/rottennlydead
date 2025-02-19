@@ -13,4 +13,6 @@
   
  , I like rhythm games more, enstars, pjsk, d4dj, bandori, etc.
 
+ <img src= "https://files.catbox.moe/1qktzo.gif" width="450" height="alto"/>
+
    ! and I love my bff (julian)
