@@ -1,18 +1,13 @@
-♱  , hi I'm enzo/len  ⸝⸝
-
- ˎˊ˗  " 5teen (16 this year srry
-       
-<img src= "https://files.catbox.moe/kelspx.gif" width="450" height="alto"/>
-
 "  ♱   𝐃𝐍𝐈 if you hate my friends . ( especially those on my profile ) 
 
 — I love enstars, I like all the characters but Mika Kagehira will always be my top1 
-  (even though Kaoru is here right now)
 
- , I like ts (yes), ptv, mcr, sws, paramore, fir, bvb and anything I can find ⊱
+ <img src= "https://files.catbox.moe/5wv57j.webp" width="250" height="alto"/>
+
+ , I like ts, ptv, mcr, sws, paramore, fir, bvb and anything I can find ⊱
   
- , I like rhythm games more, enstars, pjsk, d4dj, bandori, etc.
+ , (you can find most of my favorites on my strawpage).
 
- <img src= "https://files.catbox.moe/1qktzo.gif" width="450" height="alto"/>
+ <img src= "https://files.catbox.moe/jg29f8.gif" width="440" height="alto"/>
 
-   ! and I love my bff (julian)
+   ! and I love my bff (lian)
