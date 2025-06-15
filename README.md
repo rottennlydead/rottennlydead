@@ -1,14 +1,12 @@
-"  ♱   𝐃𝐍𝐈 if you hate my friends . ( especially those on my profile ) 
+⸝⸝────  ᛝ      𝐃𝐍𝐈 if you hate my **friends**    ⸝⸝
 
-— I love enstars, I like all the characters but Mika Kagehira will always be my top1 
 
- <img src= "https://files.catbox.moe/u95qi2.png" width="250" height="alto"/>
 
- , I like ts, ptv, mcr, sws, paramore, fir, bvb and anything I can find ⊱
-  
- , (you can find most of my favorites on my strawpage).
+ <img src= "https://files.catbox.moe/39g64k.png" width="400" height="alto"/>
 
- 
+⩇⩇:⩇⩇ 𓂃 ࣪˖ ִֶָ𐀔  
+𓂃 ࣪⋆ *Juli* , *Fran* , *Rufis* , *Mic* , *Nec* , *Blook* , *Sam* , *Shon* , *Evan* 
 
-   ! and I love my bff (lian)
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ*Rob* , *Kiran* , *Blue* , *Rory* , *Uriel* , *Dumb*
 
+࿐࿔ *Susu* , *Yohan* , *Tob* . (˶ˆᗜˆ˵)
