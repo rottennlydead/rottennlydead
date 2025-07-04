@@ -2,7 +2,7 @@
 
 
 
- <img src= "https://files.catbox.moe/hdw0gq.png" width="450" height="alto"/>
+ <img src= "https://files.catbox.moe/vtt01t.png" width="450" height="alto"/>
 
 ⩇⩇:⩇⩇ 𓂃 ࣪˖ ִֶָ𐀔  
 𓂃 ࣪⋆ *Juli* , *Fran* , *Rufis* , *Mic* , *Nec* , *Blook* , *Sam* , *Shon* , *Evan* , *Cuddles* , *Sebas*
