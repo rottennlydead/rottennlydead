@@ -1,4 +1,4 @@
-⸝⸝────  ᛝ   [scaring the thought of kissing razors](https://x.com/29o5tv)    ⸝⸝
+⸝⸝────  ᛝ   [likes](https://www.tiktok.com/@enzgore?_r=1&_t=ZM-92RqiOis7iu)    ⸝⸝
 
 
 
