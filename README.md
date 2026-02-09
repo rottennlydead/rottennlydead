@@ -7,6 +7,6 @@
 ⩇⩇:⩇⩇ 𓂃 ࣪˖ ִֶָ𐀔**Heart** : 
 𓂃 ࣪⋆ *Juli* , *Fran* , *Sebas* , *Rufis* , *Mic* , *Hik* , *Victor* , *Kiki* , *Shon* , *Evan* , *Uriel*
 
-ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ  *Rob* , *Kiran* , *Blue* , *Rory* , *Vicente*
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ  *Rob* , *Kiran* , *Rory* , *Vicente*
 
 ࿐࿔ *Susu* , *Yohan* , *Dumb* . (˶ˆᗜˆ˵)
