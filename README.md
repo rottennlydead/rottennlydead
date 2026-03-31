@@ -4,7 +4,7 @@
 
 
 ⩇⩇:⩇⩇ 𓂃 ࣪˖ ִֶָ𐀔**Heart** : 
-𓂃 ࣪⋆ *Juli* , *Fran* , *Sebas* , *Rufis* , *Mic* , *Hik* , *Victor* , *Kiki* , *Shon* , *Evan* , *Uriel*
+𓂃 ࣪⋆ *Juli* , *Fran* , *Sebas* , *Rufis* , *Mic* , *Hik* , *Victor* , *Kiki* , *Evan* , *Uriel*
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ  *Rob* , *Gordi* , *Rory* , *Vicente* , *Monki* , *Rai* , *Allen*
 
