@@ -1,4 +1,4 @@
-⸝⸝────  ᛝ   [likes](https://www.tiktok.com/@enzgore?_r=1&_t=ZM-92RqiOis7iu)    ⸝⸝
+⸝⸝────  ᛝ   [card](https://letmehealyou.carrd.co/)    ⸝⸝
 
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=848581&label=+♱+)
 
