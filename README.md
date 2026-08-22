@@ -11,7 +11,7 @@ $\color{#BEC359}{\text{࿐࿔ i lv my friends}}$
 
 $\color{#0A7178}{\text{ꨄ ┊ 𝓳uli . 𝓢󠁡ebas . 𝓡ufis . 𝓐llen . 𝓗ik . 𝓢󠁡am . 𝓜ic . 𝓳un . 𝑬van .}}$
 
-$\color{#104C4E}{\text{𝒟umb . 𝒌iki . 𝓡ory . 𝓰ordi . 𝓜onki . 𝓡ai .}}$
+$\color{#104C4E}{\text{𝒟umb . 𝒌iki . 𝓡ory . 𝓰ordi . 𝓜onki . 𝓡ai . 𝓜ioo .}}$
 
  $\color{#8E8520}{\text{ 𝓥ic . 𝓣ob . 𝓨ohan . 𝓥icente . 𝓢󠁡usu}}$
 
