@@ -17,7 +17,3 @@ $\color{#CE85FF}{\text{𝒟umb . 𝒌iki . 𝓡ory . 𝓰ordi . 𝓜onki . 𝓡a
 
 $\color{#DCFEFF}{\text{꒰ ᧔ෆ᧓ ꒱}}$
 
-<img src= "https://files.catbox.moe/ma77y8.png" width="250" height="250"/>
-
-
-$\color{#FFC8EF}{\text{⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔}}$
