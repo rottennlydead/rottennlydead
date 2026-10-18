@@ -3,9 +3,8 @@
 
 $\color{#6FE9FF}{\text{⸝⸝────  ᛝ  }}$ [card](https://letmehealyou.carrd.co/)    $\color{#488ABB}{\text{⸝⸝}}$
 
-
-![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=5B5B5B&label=+𝄞+)
-
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=5B5B5B&label=+ഒ+)
 
 
-<img src= "https://files.catbox.moe/j10ja7.png" width="570" height="570"/>
+
+<img src= "https://files.catbox.moe/j10ja7.png" width="560" height="560"/>
