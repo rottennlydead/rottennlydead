@@ -2,6 +2,9 @@
 
 $\color{#F8CF08}{\text{⸝⸝────  ᛝ  }}$ [card](https://letmehealyou.carrd.co/)    $\color{#D2352C}{\text{⸝⸝}}$
 
+$\color{#F8CF08}{\text{⸝⸝}}$ [likes](https://www.sharespotapp.com/ashelver)    $\color{#D2352C}{\text{ ᛝ  ────}}$
+
+
 
 $\color{#D2352C}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
 
