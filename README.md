@@ -10,7 +10,7 @@ $\color{#D2352C}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
 
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=5B5B5B&label=+ഒ+)
 
-$\color{#296BA6}{\text{ꨄ︎ juli . Hik . Sam . Mic . Jun . Evan . Dumb . Kiki .}}$
+$\color{#296BA6}{\text{ꨄ︎ juli . Hik . Sam . Mic . Jun . Dumb . Kiki .}}$
 
 $\color{#FFF1BB}{\text{Rory . Gordi . Monki . Rai . Mioo . Yohan}}$
 
